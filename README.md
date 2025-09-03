@@ -1,5 +1,4 @@
-## Hi there 👋
-
+<img  width="100" align="left" src="https://wilardo.crd.co/assets/images/gallery03/b37789db.png?v=c0a0770b">
 <!--
 **spvrkle/spvrkle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
