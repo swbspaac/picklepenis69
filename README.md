@@ -10,5 +10,5 @@
   <img align="center" src="https://komarev.com/ghpvc/?username=picklepenis69&color=a366d5&style=plastic&label=₍ᐢ.+.ᐢ₎&abbreviated=true">
     <br/>
     <br/>
-  <img align="center" src="https://wilardo.crd.co/assets/images/gallery05/94ae3dcb.png?v=c0a0770b">
+  <img align="center" src="https://wilardo.crd.co/assets/images/gallery05/e37aebf9.gif?v=c0a0770b">
 </p>
