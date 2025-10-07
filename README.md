@@ -1,16 +1,23 @@
 <p align="center">
-  <img align="center" width="400" src="https://wilardo.crd.co/assets/images/gallery05/8efc335f.png?v=c0a0770b">
+  <img align="center" width="500" src="https://gifcity.carrd.co/assets/images/gallery46/d67e5561.gif?v=e3c0bc0f">
     <br/>
     <br/>
-  <img align="center" src="https://spotify-github-profile.kittinanx.com/api/view?uid=jayy2007&cover_image=true&theme=natemoo-re&show_offline=true&background_color=a366d5&interchange=true&bar_color=6f5782&bar_color_cover=false">
+  <img align="center" src="https://spotify-github-profile.kittinanx.com/api/view?uid=jayy2007&cover_image=true&theme=novatorem&show_offline=true&background_color=a366d5&interchange=true&bar_color=f13a8f&bar_color_cover=false">
     <br/>
     <br/>
-  <img align="center" src="https://external-media.spacehey.net/media/s1MpecEdIDEFTo56Jis91E7SAstmGzwqs6eoZN3lmz4E=/https://64.media.tumblr.com/d7a5e228b0eb94ec28c257586feb024c/tumblr_inline_pdzce3mG4u1v11djx_500.gif">
+    <i>i am severely mentally ill,
     <br/>
-  <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery02/a43088b4.png?v=de14f5ad">
+    please be patient with me..</i>
     <br/>
-  <img align="center" src="https://komarev.com/ghpvc/?username=picklepenis69&color=a366d5&style=plastic&label=Ი𐑼++&abbreviated=true">
+    <sub><i>permakid , usually regressed 𓏴˚̣̣̣𝜗𝜚˙.</i></sub>
     <br/>
     <br/>
-  <img align="center" src="https://wilardo.crd.co/assets/images/gallery05/e37aebf9.gif?v=c0a0770b">
+  <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery17/7d648716.png?v=b471a82b">
+  <img align="center" src="https://komarev.com/ghpvc/?username=swbspaac&color=f13a8f&style=plastic&label=ᛝ+ѵⅈƈʈ℩ɱȿ+꒷꒦++++++&abbreviated=true">
+  <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery17/852945dc.png?v=b471a82b">
+    <br/>
+  <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery07/0aff8d2e.gif?v=b471a82b">
+    <br/>
+    <br/>
+  <img align="center" width="250" src="https://carcuvorous.carrd.co/assets/images/gallery10/7f83e882.gif?v=b471a82b">
 </p>
