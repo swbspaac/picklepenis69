@@ -1,15 +1,16 @@
 <p align="center">
   <img align="center" width="500" src="https://gifcity.carrd.co/assets/images/gallery46/d67e5561.gif?v=e3c0bc0f">
     <br/>
-    <br/>
   <img align="center" src="https://spotify-github-profile.kittinanx.com/api/view?uid=jayy2007&cover_image=true&theme=novatorem&show_offline=true&background_color=a366d5&interchange=true&bar_color=f13a8f&bar_color_cover=false">
+    <br/>
+    <img src="https://files.catbox.moe/lklp1i.png">
     <br/>
     <br/>
     <i>i am severely mentally ill,
     <br/>
     please be patient with me..</i>
     <br/>
-    <sub><i>permakid , usually regressed 𓏴˚̣̣̣𝜗𝜚˙.</i></sub>
+    <sup><i>permakid , usually regressed 𓏴˚̣̣̣𝜗𝜚˙.</i></sup>
     <br/>
     <br/>
   <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery17/7d648716.png?v=b471a82b">
